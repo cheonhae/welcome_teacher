@@ -77,7 +77,7 @@ D. 연구 - 중앙은행 연설 요약 및 시장 영향 평가
 URL: https://www.chosun.com/economy/economy_general/2025/08/28/4426GTQGVNDW7LNS3ZSVSE5RK4/
 2. Objective
 1) 핵심 메시지 5줄 요약
-2) 국채 3Y, 10Y 금리 영향 시나리고 3가지 제시
+2) 국채 3Y, 10Y 금리 영향 시나리오 3가지 제시
 3. Style
 1단 요약 후 번호 매긴 시나리오
 4. Tone
