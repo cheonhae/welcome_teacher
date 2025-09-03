@@ -25,3 +25,9 @@ https://www.google.com/
 https://padlet.com/eunsolcho1/padlet-ql7zyltf8q3u41hq
 - 여러분의 적극적인 참여 부탁드립니다.
 
+
+## 음악 링크: 
+https://www.youtube.com/watch?v=BMYkBErEazM&list=RDBMYkBErEazM&start_radio=1
+
+## 출석 및 만족도 장표 링크:
+https://docs.google.com/presentation/d/1xbe29oNzF--vjWagJnwIORAatgC20_-eOq9KlGO2DxU/edit?slide=id.g36d8de345b5_0_250#slide=id.g36d8de345b5_0_250
