@@ -22,9 +22,8 @@ https://www.google.com/
 - 생성형 AI의 가장 기초적인 내용을 이해할 수 있다
 
 ## 수업 참여 패들렛
-https://padlet.com/eunsolcho1/padlet-ql7zyltf8q3u41hq
+https://bit.ly/wbank2028-padlet
 - 여러분의 적극적인 참여 부탁드립니다.
-
 
 ## 음악 링크: 
 https://www.youtube.com/watch?v=BMYkBErEazM&list=RDBMYkBErEazM&start_radio=1
